@@ -1,5 +1,7 @@
-### Hi there 👋
-
+![chadi_chidi_chici](https://github.com/ch4dth0nd3rk0k/ch4dth0nd3rk0k/assets/164380892/fae3e147-6bc3-40fc-a873-9dfbca9f2b82)
+<h1>
+  CHADI. CHIDI. CHICI. ⚔️
+</h1>
 <!--
 **ch4dth0nd3rk0k/ch4dth0nd3rk0k** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
