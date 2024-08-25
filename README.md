@@ -1,6 +1,6 @@
-![chadi_chidi_chici](https://github.com/ch4dth0nd3rk0k/ch4dth0nd3rk0k/assets/164380892/fae3e147-6bc3-40fc-a873-9dfbca9f2b82)
+![chadi_chidi_chici](https://raw.githubusercontent.com/ch4dth0nd3rk0k/ch4dth0nd3rk0k.github.io/master/assets/images/chad_the_conqueror.141k.75.webp)
 <h1>
-  CHADI. CHIDI. CHICI. ⚔️
+  "That which does not kill us makes us stronger." ⚔️
 </h1>
 <!--
 **ch4dth0nd3rk0k/ch4dth0nd3rk0k** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
